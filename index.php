@@ -4,6 +4,3 @@ elgrkqe[r
         oqitjgpqer
     ]
 
-wefqemprog
-qerogmqe
-rgoqergm
